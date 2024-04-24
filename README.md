@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TONHOTDOG
-- 👀 I’m interested in TCRPYTO
+- 👀 I’m interested in CRYPTO
 - 🌱 I’m currently learning PROGRAMME
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
